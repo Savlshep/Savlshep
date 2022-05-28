@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Savlshep
 - 👀 I’m interested in ...reading, technology, real estate
-- 🌱 I’m currently learning ...html5- Just starting! 
+- 🌱 I’m currently learning ...Just starting! 
 - 💞️ I’m looking to collaborate on ... anything to help me learn as a beginner
 - 📫 How to reach me ... savlshep@gmail.com
 
