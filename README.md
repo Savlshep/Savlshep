@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Savlshep
-- 👀 I’m interested in ...reading, technology, real estate
+- 👀 I’m interested in ...reading, technology, & development
 - 🌱 I’m currently learning ...Just starting! 
 - 💞️ I’m looking to collaborate on ... anything to help me learn as a beginner
 - 📫 How to reach me ... savlshep@gmail.com
